@@ -1,0 +1,2 @@
+# Serenity-on-the-Lakes-Social-Living-Community
+The Planned Community addressesthrough the Structural and Social complexities confronting the top Five Cities throughout America. The issues of Sustainable Infrastructure , Affordable Health Care, Access to Equal Education, Aging &amp; Mental illness, Judicial Reform are just a few sociological issues confronting our modern society.  The community is designed to structure a Statistical look at the impact on society over the past 20 years. 
